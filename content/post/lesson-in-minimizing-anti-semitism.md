@@ -39,7 +39,7 @@ The study separates anti-Israel sentiments from anti-Semitic sentiments explici
 
 Or to put it another way the study looked at both classical antisemitism and new antisemitism as distinct entities; the latter being much more common then found them to be linked.
 
-So to get the 2% Guttenplan states just take the lowest number found in the study 2.4% describing people with "strong, sophisticated, perhaps internally coherent and at times even ‘learned’ antisemitism, where open dislike of Jews is combined with developed negative ideas about Jews" in the category of classical anti-Semitism and round down. 
+So to get the 2% Guttenplan states, just take the lowest number found in the study 2.4% describing people with "strong, sophisticated, perhaps internally coherent and at times even ‘learned’ antisemitism, where open dislike of Jews is combined with developed negative ideas about Jews" in the category of classical anti-Semitism and round down. 
 
 > Perhaps because anti-Semitism on the left doesn’t look or sound like right-wing bigotry. Left anti-Semitism presents itself not as prejudice, but as sympathy for the oppressed. Its roots lie not in religious or racial hatred, but in frustration with Jewish particularity and in an exaggerated sense of Jewish power.
 
@@ -47,4 +47,4 @@ He then forgets he has defined anti-Semitism in this manner by explaining how th
 
 The critique that the anti-Semitism scandal is primarily a tool used by centrist Blairites and Tories against the socialist ignores the magnitude of the scandal especially the most recent wave when many former Corbyn defender defected.
 
-This a very nuanced take on Jeremy Corbyn's anti-Semitism problem. Except I think we can all agree nuance is sometimes unneeded and unfruitful. I could say the narrative of Trump saying and doing misogynistic things has gotten caught up in partisan politics, used a tool to by the left and center to score political points, Or I could say Trump is a misogynistic. Guttenplan goes to great lengths describe the nuanced and confounding reality of Labour's issue. All dressed up in nuance you could almost miss the point Corybn is an anti-Semite.
+This a very nuanced take on Jeremy Corbyn's anti-Semitism problem. Except I think we can all agree nuance is sometimes unneeded and unfruitful. I could say the narrative of Trump saying and doing misogynistic things has gotten caught up in partisan politics, used as a tool to by the left and center to score political points, Or I could say Trump is a misogynistic. Guttenplan goes to great lengths describe the nuanced and confounding reality of Labour's issue. All dressed up in nuance you could almost miss the point Corbyn is an anti-Semite.
