@@ -26,7 +26,7 @@ A quick reading of a section titled "Counting antisemites versus measuring antis
 
 The study is worth a read and has been often miss represented. For this reason I may write up a summery of it.
 The study separates anti-Israel sentiments from anti-Semitic sentiments explicitly stating:
->Whilst, empirically, all of the anti-Israel statements we tested are considered to be at least ‘probably antisemitic’ by a majority of UK Jews, we did not relate, in the first instance, to the question of whether or not they are antisemitic from the perspective of those holding such views. 
+> Whilst, empirically, all of the anti-Israel statements we tested are considered to be at least ‘probably antisemitic’ by a majority of UK Jews, we did not relate, in the first instance, to the question of whether or not they are antisemitic from the perspective of those holding such views. 
 
 >anti-Israel attitudes are not, as a general rule, antisemitic; but the stronger a person’s anti-Israel views, the more likely they are to hold antisemitic attitudes.
 
